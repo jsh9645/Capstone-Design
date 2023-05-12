@@ -1,1 +1,1 @@
-![image](https://github.com/jsh9645/Capstone-Design/assets/103232916/db291c82-640a-4ac2-9641-8e2ebd2537b8)
+[4조 캡스톤 발표자료 .pptx](https://github.com/jsh9645/Capstone-Design/files/11457954/4.pptx)
