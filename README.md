@@ -14,3 +14,7 @@ https://github.com/jsh9645/Capstone-Design/assets/103232916/e5fb0f65-8875-4ed7-b
 
 
 ![image](https://github.com/jsh9645/Capstone-Design/assets/103232916/1f7eebdf-7556-4038-ab76-c007970e4ae7)
+
+
+Uploading 1.mp4…
+
