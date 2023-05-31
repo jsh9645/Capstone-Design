@@ -13,7 +13,7 @@
 https://github.com/jsh9645/Capstone-Design/assets/103232916/e5fb0f65-8875-4ed7-bf55-fb8069e10b8c
 
 
-![image](https://github.com/jsh9645/Capstone-Design/assets/103232916/1f7eebdf-7556-4038-ab76-c007970e4ae7)
+![image](https://github.com/jsh9645/Capstone-Design/assets/103232916/946eabbf-26db-45f4-8d3d-a3850ddfd3c3)
 
 
 https://github.com/jsh9645/Capstone-Design/assets/103232916/c1eb02b1-17bd-4023-a1ad-e951f06ddf6f
