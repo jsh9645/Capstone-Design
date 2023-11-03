@@ -1,4 +1,4 @@
-![image](https://github.com/jsh9645/Capstone-Design/assets/103232916/a813124a-6c7c-4526-80f8-405f701d1299)
+![image](https://github.com/jsh9645/Capstone-Design/assets/103232916/51c4cf18-6c48-40b1-aabc-718cc94c1187)
 ![image](https://github.com/jsh9645/Capstone-Design/assets/103232916/4b0a3ce5-ed9d-4bec-8812-5b9af5b5b8a0)
 ![image](https://github.com/jsh9645/Capstone-Design/assets/103232916/fdfd1de3-3120-47fb-80e9-1c99237a896d)
 ![image](https://github.com/jsh9645/Capstone-Design/assets/103232916/bd89a115-df69-4552-a4e7-6a536ade8a54)
