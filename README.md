@@ -1,7 +1,7 @@
-![image](https://github.com/jsh9645/Capstone-Design/assets/103232916/f00e3a74-075b-4cd2-99cb-4f662393cc58)
-![image](https://github.com/jsh9645/Capstone-Design/assets/103232916/fcd79e7a-b955-4da8-963c-89dd17d184d4)
-![image](https://github.com/jsh9645/Capstone-Design/assets/103232916/37f5deb6-8da5-4374-bef1-f398d2e3f4c9)
-![image](https://github.com/jsh9645/Capstone-Design/assets/103232916/ca81b596-7962-45c1-900b-b97bbaa94640)
-![image](https://github.com/jsh9645/Capstone-Design/assets/103232916/057f4beb-fb24-46e3-b4c3-f975b8ece649)
-![image](https://github.com/jsh9645/Capstone-Design/assets/103232916/637be84d-bc40-463a-a586-c6d4e1906d3c)
-![image](https://github.com/jsh9645/Capstone-Design/assets/103232916/7c40c3ef-11a5-4de8-8dc1-551e3e1204fc)
+![image](https://github.com/jsh9645/Capstone-Design/assets/103232916/862767ec-b39b-4edb-ab46-fa02848b4d5a)
+![image](https://github.com/jsh9645/Capstone-Design/assets/103232916/73bfd649-9765-4f7e-b22d-bd1113726e7b)
+![image](https://github.com/jsh9645/Capstone-Design/assets/103232916/82ac215b-ebaf-4602-b9d5-c4a3ea73cd63)
+![image](https://github.com/jsh9645/Capstone-Design/assets/103232916/a3472fec-4402-4abd-9aa5-cf392fa41c37)
+영상
+https://youtu.be/9fWINuzKwFs
+![image](https://github.com/jsh9645/Capstone-Design/assets/103232916/0e1a2e6e-cab1-4ff5-b133-3ce6639981de)
