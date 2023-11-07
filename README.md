@@ -4,7 +4,5 @@
 
 
 
-
-
-https://github.com/jsh9645/Capstone-Design/assets/103232916/d704e5d6-e717-4727-af24-6ecfb3f4016e
+https://github.com/jsh9645/Capstone-Design/assets/103232916/c687bd3c-7a36-4670-9b8b-67360aed6f43
 
