@@ -8,4 +8,4 @@ https://youtu.be/9fWINuzKwFs
 
 https://youtu.be/IaMK7tsMLoE
 
-![image](https://github.com/jsh9645/Capstone-Design/assets/103232916/0e1a2e6e-cab1-4ff5-b133-3ce6639981de)
+
