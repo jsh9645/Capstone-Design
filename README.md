@@ -1,4 +1,5 @@
-[졸업작품 최종 발표.pptx](https://github.com/jsh9645/Capstone-Design/files/13280600/default.pptx)
+[졸업작품 최종 발표.pptx](https://github.com/jsh9645/Capstone-Design/files/13283351/default.pptx)
+
 ##
 https://www.youtube.com/watch?v=r1g6RWd0f10
 
